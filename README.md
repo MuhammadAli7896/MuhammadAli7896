@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **muhammadali30804@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/2p994e95](https://tinyurl.com/2p994e95)
+- 📄 Check out my Resume [https://tinyurl.com/2p994e95](https://tinyurl.com/2p994e95)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
