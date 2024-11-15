@@ -1,3 +1,4 @@
+![logo](https://github.com/MuhammadAli7896/MuhammadAli7896/blob/main/Github%20Banner.png)
 <h1 align="center">Hi 👋, I'm Muhammad Ali</h1>
 <h3 align="center">A passionate Full Stack developer, thriving and excelling in this field.</h3>
 
